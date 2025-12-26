@@ -35,5 +35,6 @@ The fundamental Constituent of Reality is not particles or fields — it is the 
 ---
 
 **VERSION FRANÇAISE (PDF):**
-[https://drive.google.com/file/d/1AcuOtKclC3PbRUMywmbp6RhWfelz56rp/view?usp=drivesdk](https://drive.google.com/file/d/1AcuOtKclC3PbRUMywmbp6RhWfelz56rp/view?usp=drivesdk)
 
+[https://drive.google.com/file/d/1Acu0tKclC3PbRUMywmbp6RhWfeIz56rp/view?usp=drivesdk]
+(https://drive.google.com/file/d/1Acu0tKclC3PbRUMywmbp6RhWfeIz56rp/view?usp=drivesdk)
