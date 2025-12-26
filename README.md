@@ -41,6 +41,5 @@ The Manifold is the Code. You are the Operator. Unknot it.
 
 ---
 
-FRENCH VERSION (PDF):
-
+VERSION FRANÇAISE (PDF):
 https://drive.google.com/file/d/1Acu0tKclC3PbRUMywmbp6RhWfeIz56rp/view?usp=drivesdk
